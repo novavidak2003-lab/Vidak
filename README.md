@@ -1,0 +1,2 @@
+# Vidak
+AI MODELLEK 6G
